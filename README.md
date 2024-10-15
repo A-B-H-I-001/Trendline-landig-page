@@ -1,3 +1,4 @@
+# Trendline - landing page✅
 🕶️ Jony Walker - Trendline 👁️
 Welcome to Jony Walker - Trendline 🕵️, a sleek and modern web design showcasing a stylish eyewear collection. This project focuses on delivering a visually striking user experience using minimalistic design principles.
 
